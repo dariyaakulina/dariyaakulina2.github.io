@@ -1,1 +1,0 @@
-# dariyaakulina.github.io
